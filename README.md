@@ -20,7 +20,7 @@ Over 27,000 runs in international cricket
 
 Strike rate: 91.44 with a solid average of 49.74
 
-Most productive years: 2012–2018
+Most productive years: 2016–2019
 
 Milestones: 143 fifties, 82 centuries
 
